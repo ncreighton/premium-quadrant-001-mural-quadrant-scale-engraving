@@ -1,0 +1,2 @@
+# premium-quadrant-001-mural-quadrant-scale-engraving
+Scaling a mural design across a wall without losing proportion or wasting materials is a constant struggle. The Mural Quadrant Scale Engraving Guide eliminates guesswork by giving you a repeatable Notion system to grid, scale, and engrave murals with professional precision.  This template transforms manual quadrant scaling into a streamlined digita
